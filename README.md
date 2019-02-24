@@ -1,0 +1,1 @@
+# modellizzazione_della_reazione_di_belousov_zhabotinsky
